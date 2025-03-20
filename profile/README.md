@@ -1,6 +1,6 @@
 ## What is FF Beta Pro APK
 
-# 🌈 Download : [FF Beta Pro APK (Free Fire)]([/](https://hiheapk.com/ff-beta-pro/))
+# 🌈 Download : [FF Beta Pro APK](https://hiheapk.com/ff-beta-pro/)
 
 FF Beta Pro APK is an advanced version of the popular mobile battle royale game Free Fire. It is an unofficial, modified APK (Android Package Kit) file that allows users to access the beta features of Free Fire before they are released to the public. This APK offers additional features, customization options, and benefits that are not available in the standard version of Free Fire. Players can experience new game modes, enhanced graphics, and special abilities by using FF Beta Pro APK.
 
@@ -47,4 +47,4 @@ For iOS users, it’s better to avoid using third-party APKs and instead stick t
 
 **Free Fire** | **No PW**
 
-🍿 
+## 🍿 
